@@ -1,1 +1,0 @@
-# jobgam-applicant
